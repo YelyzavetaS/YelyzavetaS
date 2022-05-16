@@ -1,5 +1,5 @@
-Yelyzaveta Shevelieva
-20 yeras old
+Yelyzaveta Shevelieva.
+20 yeras old.
 I'm a student of National Aerospase University "Kharkiv Aviation Institute". 
 My specialty is Telecommunications and Radioengineering (Radio Electronic Devices, Systems and Complexes). 
 Here are links to my social network:
